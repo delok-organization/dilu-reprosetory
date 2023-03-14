@@ -1,2 +1,0 @@
-jigidiuhkhgtukhgb
-delok jena`
